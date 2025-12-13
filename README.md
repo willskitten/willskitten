@@ -1,16 +1,12 @@
-## Hi there 👋
+![](https://64.media.tumblr.com/f063217f52c2d3677b2af9e05b77c36e/24f015255c70d1b3-68/s1280x1920/5ff8383abc073ea15f08dc589b52a8aaad2b186c.gifv)
+## <p align="center" >𝓗𝓮𝓵𝓵𝓸/𝓗𝓮𝔀𝔀𝓸!</p>
+![](https://64.media.tumblr.com/df6b4d2caf064213ce212a1857cfff85/24f015255c70d1b3-ff/s500x750/5775119de3ec0028ace1ddee40557750c1ac1f0e.pnj)
+>𝓜𝓲𝓶𝓲 ' 𝓡𝓲𝓬𝓱𝓲𝓮 | 𝓟𝓮𝓽/𝓐𝓰𝓮-𝓡𝓮𝓰𝓻𝓮𝓼𝓼𝓸𝓻(𝓟𝓵𝓼 𝓓𝓝𝓘 𝓱𝓪𝓻𝓪𝓼𝓼𝓮𝓻𝓼..)
+ 6𝓽𝓮𝓮𝓷 + 𝓯𝓮𝓶 𝓸𝓻𝓼 𝓶𝓪𝓵𝓮 (𝓻𝓪𝓻𝓮)
+ 𝓢𝓱𝓮 ' 𝓗𝓲𝓶 ' 𝓗𝔂𝓶
+ 𝓬+𝓱 | 𝓲𝔀𝓬! | 𝓷𝓿 𝓪𝓽 𝓯𝓲𝓻𝓼𝓽 𝓶𝓮𝓮𝓽 | 𝓙𝓾𝓼𝓽 𝓘𝓦𝓒 𝓹𝓵𝓮𝓪𝓼𝓮!۶ৎ !
+***
+𝓟𝓮𝓽 𝓲𝓷𝓯𝓸 ; 𝓑𝓵𝓪𝓬𝓴 𝓚𝓲𝓽𝓽𝓮𝓷 | 𝓝𝓿𝓾 𝓲𝓽𝓼 𝓶𝔂 𝓟𝓾𝓹𝓹𝔂 | 𝓢𝓱𝓮/𝓚𝓲𝓽𝓽𝓮𝓷 ; 𝓛𝓲𝓽𝓽𝓵𝓮 𝓲𝓷𝓯𝓸 ; 1-4 𝔂𝓮𝓪𝓻𝓼 𝓸𝓵𝓭 |𝓵𝓾𝓿𝓼 𝓸𝓽𝓱𝓮𝓻 𝓵𝓲𝓽𝓽𝓵𝓮𝓼/𝓬𝓰𝓼 | 𝓼𝓱𝔂!
 
-<!--
-**steveskitten/steveskitten** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+***
+![](https://64.media.tumblr.com/6e1a3cf4de0f350347a698687a9ff1d0/24f015255c70d1b3-e8/s500x750/6b8dbe6f6b139550f4f410c2fe3b78b549770afa.pnj)![](https://64.media.tumblr.com/8a0481c72f62572f44c281c153116ebf/24f015255c70d1b3-e3/s500x750/e51e0864c40a2fddbb51f9a15a30327e2f06f091.pnj)
