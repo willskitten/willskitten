@@ -1,6 +1,9 @@
 <img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/948fc5a8-2d3b-4f72-95d1-d12ebec760e5" />
 
 ***
+
+
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=ff829a&center=true&width=435&lines=%E2%80%98Oki+Doki+Loki!%E2%80%99"/> </p>
 <p align="center">${\textsf{\color{#b20838} ριɳƙιҽ ριҽ ƙιɳɳҽɾ! ♡ }}$
 
 <p align="center">${\textsf{\color{#fce144} (ρʅʂ ԃɳι :: ƈυρƈαƙҽʂ | ριɳƙαɱιɳα | ʂɱιʅҽ ԋԃ ριɳƙιҽ ƙιɳɳҽɾʂ) }}$
