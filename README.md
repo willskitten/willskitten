@@ -12,7 +12,7 @@
  𓏲⠀ ：ྀི   mimi   '  simpbur ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜✚     ⠀ᛝ⠀    .     he╱she/love⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：sipbur kinner⠀　𓏴⠀ ⁰⁰ ⁰⁰
+ ⠀⠀⠀⠀⠀⠀⠀：simpbur kinner⠀　𓏴⠀ ⁰⁰ ⁰⁰
            
  ּ֯ .  i kin simpbur not incelbur. ꒰ ᧔ෆ᧓ ꒱
 
