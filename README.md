@@ -1,14 +1,24 @@
-<img width="736" height="570" alt="image" src="https://github.com/user-attachments/assets/277d25a4-bf84-4ccb-9c2a-3345786ba4ac" />
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=willskitteni&color=8898bf&label=streams+watched)
+
+<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/ce9ff36c-2682-46dd-a2fe-227ec6b9da1d" />
 
 
 
-***
 
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f0cadb&center=true&width=435&lines=%E2%80%98Your+New+Boyfriend!%E2%80%99"/> </p>
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=84fa30&center=true&width=435&lines=%E2%80%98Too+Little+To+Late..%E2%80%99"/> </p>
+ 𓏲⠀ ：ྀི   mimi   '  simpbur ⠀ ̣̣̣ ͜𓏫
+ ⠀⠀⠀  ۪    𓏼 ͜͜✚     ⠀ᛝ⠀    .     he╱she/love⠀! ⠀⠀⠀⠀.
 
-<p align="center">${\textsf{\color{#64d49b} 🍏 '  ʂʅιɱҽƙɳιɠԋƚ/3αʋҽɾყ ʂƚαɳʂ ιɳƚ!!♡ }}$
-<p align="center">${\textsf{\color{#83fa75} ⚔️ ' ιϝ ι ԋαʋҽ ɳҽʋҽɾ ιɳƚ ɯιƚԋ ყσυ, ι ɯιʅʅ Ⴆҽ ɳʋ. ιƚʂ ɳσƚ ιɠɳσɾιɳɠ ι ʝυʂƚ ԋαʋҽɳ'ƚ ɱҽƚ ყσυ. }}$
-  
-***
-<img width="735" height="509" alt="image" src="https://github.com/user-attachments/assets/f57e8576-63da-453c-b7aa-84ede6719330" />
+ ⠀⠀⠀⠀⠀⠀⠀：sipbur kinner⠀　𓏴⠀ ⁰⁰ ⁰⁰
+           
+ ּ֯ .  i kin simpbur not incelbur. ꒰ ᧔ෆ᧓ ꒱
+
+　　　　　 ⤷ 　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  quackbur stans : quackity stans  ♡
+
+　　　　　⌒  　dni. :   wilbur soot supporters :  glitter duo shippers. : parasocial fans : doubles.　 　⟡
+
+　　　　　 (๑･ω･)　　baii　　⋌　　bai!!
+　﹒　
