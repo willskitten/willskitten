@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=willskitteni&color=8898bf&label=schlat+coins+sold)
+![](https://komarev.com/ghpvc/?username=willskitteni&color=8898bf&label=Schlatt+Coins+sold!)
 
 <img width="540" height="626" alt="image" src="https://github.com/user-attachments/assets/ed7bca11-9e3e-4fc2-8ea8-d03dbf830950" />
 
