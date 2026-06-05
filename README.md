@@ -1,8 +1,8 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=willskitteni&color=8898bf&label=Schlatt+Coins+sold!)
+![](https://komarev.com/ghpvc/?username=willskitteni&color=8898bf&label=Pr3tty+Deaths!)
 
-<img width="540" height="626" alt="image" src="https://github.com/user-attachments/assets/ed7bca11-9e3e-4fc2-8ea8-d03dbf830950" />
+<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/b61945e5-cc4a-41fe-ac46-8a12f2cc1a22" />
 
 
 
