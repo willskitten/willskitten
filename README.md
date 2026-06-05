@@ -9,16 +9,16 @@
 
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=f0cadb&center=true&width=435&lines=%E2%80%98Girls+Know+How+To+Fight!%E2%80%99"/> </p>
 
- 𓏲⠀ ：ྀི   mimi   '  katie-b ⠀ ̣̣̣ ͜𓏫
+ 𓏲⠀ ：ྀི   mimi   '  pr3ttyprincess ⠀ ̣̣̣ ͜𓏫
  ⠀⠀⠀  ۪    𓏼 ͜͜✚     ⠀ᛝ⠀    .     he╱she/love⠀! ⠀⠀⠀⠀.
 
- ⠀⠀⠀⠀⠀⠀⠀：katie-b kinner⠀　𓏴⠀ ⁰⁰ ⁰⁰
+ ⠀⠀⠀⠀⠀⠀⠀：pr3ttyprincess kinner⠀　𓏴⠀ ⁰⁰ ⁰⁰
            
- ּ֯ .  jschlatt-b matching acc. ꒰ ᧔ෆ᧓ ꒱
+ ּ֯ .  c00lprincess matching acc. ꒰ ᧔ෆ᧓ ꒱
 
-　　　　　 ⤷ 　　 ﹒　 　int   :　　  dsmp/qsmp stans  :  katewoon stans : jschlatt stans  ♡
+　　　　　 ⤷ 　　 ﹒　 　int   :　　 pr3ttyprincess stans  :  friends : c00l and Bluu ofc!  ♡
 
-　　　　　⌒  　dni. :  fariis supporters :  aura duo shippers. : parasocial fans : doubles.　 　⟡
+　　　　　⌒  　dni. :  4skn fandom :  c00lcest shippes. : mafioso x pr3tty shippers : doubles.　 　⟡
 
 　　　　　 (๑･ω･)　　baii　　⋌　　bai!!
 　﹒　
