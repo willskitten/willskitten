@@ -1,9 +1,8 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=willskitteni&color=8898bf&label=Pr3tty+Deaths!)
+![](https://komarev.com/ghpvc/?username=willskitteni&color=e84165&label=Pr3tty+Deaths!)
 
-<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/b61945e5-cc4a-41fe-ac46-8a12f2cc1a22" />
-
+<img width="627" height="727" alt="image" src="https://github.com/user-attachments/assets/4ab7bbd2-ab70-41df-b7ba-b18a880289ff" />
 
 
 
